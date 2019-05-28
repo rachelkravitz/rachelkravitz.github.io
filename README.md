@@ -1,1 +1,1 @@
-# rachelkravitz.github.io
+Map of My Favorite Places in California!
